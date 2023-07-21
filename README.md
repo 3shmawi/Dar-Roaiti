@@ -1,6 +1,6 @@
 # Dar-Roaiti
 
-## The app on google play
+## Link app on google play.
 https://play.google.com/store/apps/details?id=com.novel.dar
 
 Introducing "روايتي" (My Novel), the ultimate app for Arabic novel enthusiasts. Immerse yourself in a world of captivating stories, rich characters, and thrilling narratives, all at your fingertips. With "روايتي," your love for Arabic literature comes alive, offering an extensive collection of novels from renowned authors and undiscovered talents alike.
