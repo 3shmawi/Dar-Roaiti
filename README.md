@@ -31,33 +31,32 @@ Embark on an enchanting literary adventure with "روايتي" and experience th
 
 "روايتي" - Where Arabic Novels Thrive.
 
-novels form writers
-![image](https://github.com/Ashmaawy/Dar-Roaiti/assets/100779215/2b211c2f-59d1-48f7-9be8-ea4f83e7bf2f)
+![Screenshot from 2023-07-27 08-00-33](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/507d0b02-f068-486d-980c-5c6090efe766)
+![Screenshot from 2023-07-27 08-00-58](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/c26e44ba-4421-45c4-9e92-c9754b3326d7)
+![Screenshot from 2023-07-27 08-01-27](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/4758b038-922b-461a-9b85-d256015a5506)
+![Screenshot from 2023-07-27 08-01-44](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/ab15a36b-79bb-4888-9d81-1b6895b1a592)
+![Screenshot from 2023-07-27 08-02-21](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/8b1bffc6-543d-4203-a013-c45f00c293a1)
+![Screenshot from 2023-07-27 08-02-27](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/dc53a96f-86d7-46bb-b754-5d27856e4fd0)
+![Screenshot from 2023-07-27 08-02-32](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/3212ba4d-6de8-48c8-926b-e08837cc3fa2)
+![Screenshot from 2023-07-27 08-02-50](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/c6cbd65a-6234-4ce6-813c-5287a7c980e9)
+![Screenshot from 2023-07-27 08-02-59](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/05c7ec7f-83d5-4fae-b1e5-1a2312367d68)
+![Screenshot from 2023-07-27 08-03-17](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/ea3e4e13-a127-409c-8038-838ad9630b17)
+![Screenshot from 2023-07-27 08-03-25](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/79f190d3-0487-4b06-bf0c-7db8c915d629)
+![Screenshot from 2023-07-27 08-03-39](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/cdddb5c1-4e01-41e8-84be-e64dd1e08ecf)
+![Screenshot from 2023-07-27 08-03-53](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/588c6a18-fd0b-437b-ba59-9d6983c664f6)
+![Screenshot from 2023-07-27 08-05-05](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/815a930b-7b4a-4540-89d2-4535f6b3a631)
+![Screenshot from 2023-07-27 08-05-20](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/24351c15-10af-4ed3-adfd-986f3cf8e699)
+![Screenshot from 2023-07-27 08-05-43](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/8eeb7eb2-c2d0-43fe-ab4d-f0ba5f144dfb)
+![Screenshot from 2023-07-27 08-06-03](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/b9762ea3-09e2-4316-b571-2f6daed7e025)
+![Screenshot from 2023-07-27 08-06-41](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/5fbbc314-6eaf-40a0-bdeb-4a0e9e1bccab)
+![Screenshot from 2023-07-27 08-06-48](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/8f4acee2-cf80-4faa-8d71-c5da7c497586)
+![Screenshot from 2023-07-27 08-06-54](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/771483ba-28d3-4f2e-8d00-d2cf8d37ff46)
+![Screenshot from 2023-07-27 08-07-26](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/86f83f6e-a39b-4e9e-8ae2-2d9e8590c48b)
+![Screenshot from 2023-07-27 08-07-35](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/20d934bf-7435-491e-a44f-57aa2379b956)
+![Screenshot from 2023-07-27 08-07-51](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/7efc8f7e-c7af-4168-b37b-e61bf02b5902)
+![Screenshot from 2023-07-27 08-08-00](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/26ec2fc6-354f-4092-932e-7e2687a2d38d)
+![Screenshot from 2023-07-27 08-08-13](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/cf7952de-3c9f-44c7-bb1c-d35794fe6658)
+![Screenshot from 2023-07-27 08-08-19](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/d5775361-d85d-4edc-bc21-a356fabef0bb)
+![Screenshot from 2023-07-27 08-08-35](https://github.com/3shmawi/Dar-Roaiti/assets/100779215/7c07ce33-45f1-4c80-8f76-d7342043ff00)
 
-![image](https://github.com/Ashmaawy/Dar-Roaiti/assets/100779215/ed4cb7f3-60df-44f6-86dd-8ff07f3fb8dc)
-
-![image](https://github.com/Ashmaawy/Dar-Roaiti/assets/100779215/f2f1dda8-7759-436d-a83f-ef4781b47248)
-
-![image](https://github.com/Ashmaawy/Dar-Roaiti/assets/100779215/f8628608-86c4-4d95-b217-6a712586b97a)
-
-pdfs
-![image](https://github.com/Ashmaawy/Dar-Roaiti/assets/100779215/b8e23da6-44aa-4df3-bc93-eebf3fa5a7c2)
-
-audio books
-![image](https://github.com/Ashmaawy/Dar-Roaiti/assets/100779215/6c7557c6-9a2d-492e-b86b-8e5f9c124fc3)
-
-admin profile
-![image](https://github.com/Ashmaawy/Dar-Roaiti/assets/100779215/d3cb9a8f-4efb-48f5-ba6c-83bfcdbc6573)
-
-upload writer novel
-![image](https://github.com/Ashmaawy/Dar-Roaiti/assets/100779215/a04a3519-742d-4535-9663-3f8af8015a76)
-
-filters
-![image](https://github.com/Ashmaawy/Dar-Roaiti/assets/100779215/d39bdba6-6bd1-4577-b3ea-b4166f5d5113)
-
-notifications
-![image](https://github.com/Ashmaawy/Dar-Roaiti/assets/100779215/34c3db87-b2a1-4baf-86d6-6ec7294d8f75)
-
-fav
-![image](https://github.com/Ashmaawy/Dar-Roaiti/assets/100779215/a07358c8-77d1-4d7c-a886-5c229de5bb85)
 
